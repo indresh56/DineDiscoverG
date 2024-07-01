@@ -1,6 +1,7 @@
-![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/975e1870-af1e-40c4-bda9-83a255f297e0)
-![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/1c0f6ffc-b8eb-4287-8ed8-c77ae7194bcd)
-![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/24ce7d8c-b5db-4033-9bd5-157bbb9db01e)
-![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/368ab2e9-2142-40dd-b065-e70d1240e5ba)
-
-
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/a8db8459-4fb6-4467-84a4-abfaedb942af)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/345f75d7-bb06-44d1-b903-f458a7d4a62a)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/892dc9ac-7f4a-4afe-9d15-a294e4c935eb)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/fbc9cf27-501d-42d7-97cc-8e0a23decae5)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/bb137e1c-dc59-4176-aa9d-536b2dfea5a8)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/377f29c6-59be-411f-a0d2-27d5a99a1828)
+![image](https://github.com/indresh56/DineDiscoverG/assets/85017596/5115b829-de74-4248-8fc0-cd089ab5c52b)
